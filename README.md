@@ -130,7 +130,7 @@ Recommended WhatsApp👇
 
 <div align="center">
 	
-[![Run on Repl.it](https://replit.com/@ApexLegend4/wa-bot)
+[![Run on Repl.it](https://repl.it/badge/github/quiec/whatsAlfa)](https://replit.com/@ApexLegend4/wa-bot)
 
 [![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy)
 </div>
