@@ -1,7 +1,7 @@
 <p align="center">
 <img src="./Android/database/K.Prabhasha.gif" alt="Loading..." width="320"/>
 <p align="center">
-<img src="(https://www.freepnglogos.com/uploads/robot-png/robot-eset-nod-and-smart-security-lifetime-crack-syed-qasim-12.png)" alt="nz" width="350"/>
+<img src="[https://www.freepnglogos.com/uploads/robot-png/robot-eset-nod-and-smart-security-lifetime-crack-syed-qasim-12.png]" alt="nz" width="350"/>
 </p>
 
 ## 𝙍𝙀𝘿╺ 𝘿𝙍𝘼𝙂𝙊𝙉 -𝗕𝗢𝗧࿐   Version 12.0
